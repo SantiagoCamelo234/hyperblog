@@ -116,3 +116,6 @@ Mera, dime Juanka
 Mera, dime Brray
 Myke Towers, baby
 Esta cancion es basura
+Esta cancion es basura
+Anuel ua
+Solo escuchen musica cristiana
